@@ -1,3 +1,3 @@
 # deustch-lernen
 
-to learn german and get prepared to your next job opportinity and any business presentation
+to learn german, get prepared for your next job opportunity or any business presentation
